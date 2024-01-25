@@ -1,1 +1,1 @@
-# conflict
+# Goodbye Conflict
