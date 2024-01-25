@@ -1,1 +1,1 @@
-# Goodbye Conflict
+# Goodbye Conflict - By Renze and Hendrich
